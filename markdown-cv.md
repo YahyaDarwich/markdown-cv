@@ -8,7 +8,7 @@ First of all, I adore my specialist, who I consider the main motivation for my d
 #### **Training at CCG – Consolidated Consultancy Group**
 *From January/2021 to March/2021 (Lebanon/Tripoli)*  
 **Story about ccg :** Our services range from infrastructure cabling to full-fledged IT Infrastructure Solutions including Email, Web, Security, IP Telephony, Conferencing Solutions (Data and Video), physical network infrastructure, and server room solutions.  
-**Duration:**   
+**Duration:**  2 months. 
 **Career:** IT Technical Support.
 #### **Training Certificate in Ogero Telecom, Tripoli**
 *From July/2017 to August/2017*
