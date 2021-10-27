@@ -1,5 +1,6 @@
 # Yahya Darwich  
 ## IT Technical Support
+![yahya darwich](https://scontent.fbey5-1.fna.fbcdn.net/v/t1.6435-9/82715553_803416373463830_7042628973863370752_n.jpg?_nc_cat=108&ccb=1-5&_nc_sid=09cbfe&_nc_ohc=v1BHtmgp7RMAX8nLUnO&_nc_ht=scontent.fbey5-1.fna&oh=3903b9ed3910a8786eee39d8d44b86df&oe=619EEB80 "Yahya Darwich")
 ### Summary
 An entry-level IT support professional who is pursuing a full-time role in IT. Recently I completed the Google IT Support Professional Certification - a two-month IT support program that covers troubleshooting, customer service, networking, operating systems, system administration, and security, and includes practical labs.
 ### Objectives
